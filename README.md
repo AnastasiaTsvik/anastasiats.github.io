@@ -1,1 +1,0 @@
-# anastasiatsvik.github.io
